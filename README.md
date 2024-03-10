@@ -2,7 +2,7 @@
 - 👀 I’m interested in playing outdoor games like badminton,cricket, football. 
 - 🌱 I’m currently learning web development.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me : mail me "rohitkumar76452020@gmail.com" .
+- 📫 How to reach me : Mail 💌 me "rohitkumar76452020@gmail.com" .
 - 😄 Pronouns: Rohit 
 - ⚡ Fun fact: seriously i'm not funny 😂
 
